@@ -1,1 +1,1 @@
-# Ukrtelecom-Zakarpattya-GoogleSources
+# https://укртелеком.pp.ua
